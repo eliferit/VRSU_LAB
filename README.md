@@ -1,1 +1,0 @@
-# VRSU_LAB
